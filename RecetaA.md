@@ -20,7 +20,7 @@
 <br>
 6. MEZCLE la pasta con la salsa y SIRVA caliente.
 <br>
-3. Caliente el HASEITE y ZOFRIE el ajo picado.
+3. Caliente el ACEITE y ZOFRIE el ajo picado.
 <br>
 5. Incorpore la crema y REVUELBE suavemente.
 <br>
