@@ -24,3 +24,6 @@ Instrucciones
 5. Incorpore la crema y REVUELBE suavemente.
 <br>
 2. Escurra la pasta y REZERBE un poco del agua de cocción.
+
+Valerie Sofia Parra Artunduaga 
+1025534048
