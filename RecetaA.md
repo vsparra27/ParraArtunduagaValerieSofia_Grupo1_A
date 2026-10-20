@@ -16,7 +16,7 @@
 <br>
 4. Agrega los champiñones y cocínelos hasta que estén tiernos. 
 <br>
-1. Hierva la pasta en HAGUA con sal hasta que esté al dente.
+1. Hierva la pasta en AGUA con sal hasta que esté al dente.
 <br>
 6. MESCLE la pasta con la salsa y SIRBA caliente.
 <br>
