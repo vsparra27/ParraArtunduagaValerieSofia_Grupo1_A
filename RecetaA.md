@@ -20,7 +20,7 @@
 <br>
 6. MEZCLE la pasta con la salsa y SIRVA caliente.
 <br>
-3. Caliente el ACEITE y SOFRÍE el ajo picado.
+1. Caliente el ACEITE y SOFRÍE el ajo picado.
 <br>
 5. Incorpore la crema y REVUELVE suavemente.
 <br>
