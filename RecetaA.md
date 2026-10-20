@@ -22,6 +22,6 @@
 <br>
 3. Caliente el ACEITE y SOFRÍE el ajo picado.
 <br>
-5. Incorpore la crema y REVUELBE suavemente.
+5. Incorpore la crema y REVUELVE suavemente.
 <br>
 2. Escurra la pasta y REZERBE un poco del agua de cocción.
