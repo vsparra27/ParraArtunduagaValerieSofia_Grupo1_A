@@ -14,7 +14,7 @@
 <br><br><br>
 ## Instrucciones
 <br>
-4. Agrega los champiñones y cocínelos hasta que estén tiernos. 
+3. Agrega los champiñones y cocínelos hasta que estén tiernos. 
 <br>
 2. Hierva la pasta en AGUA con sal hasta que esté al dente.
 <br>
