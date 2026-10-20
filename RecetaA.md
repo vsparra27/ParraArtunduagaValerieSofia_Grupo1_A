@@ -14,14 +14,14 @@
 <br><br><br>
 ## Instrucciones
 <br>
-3. Agrega los champiñones y cocínelos hasta que estén tiernos. 
+1. Caliente el ACEITE y SOFRÍE el ajo picado.
 <br>
 2. Hierva la pasta en AGUA con sal hasta que esté al dente.
 <br>
-6. MEZCLE la pasta con la salsa y SIRVA caliente.
-<br>
-1. Caliente el ACEITE y SOFRÍE el ajo picado.
+3. Agrega los champiñones y cocínelos hasta que estén tiernos.
 <br>
 4. Incorpore la crema y REVUELVE suavemente.
 <br>
 5. Escurra la pasta y RESERVE un poco del agua de cocción.
+<br>
+6. MEZCLE la pasta con la salsa y SIRVA caliente.
