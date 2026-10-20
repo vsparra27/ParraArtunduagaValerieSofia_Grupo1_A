@@ -1,9 +1,8 @@
 # pasta cremosa con champiñones 
 <br>
 <img src="https://images.unsplash.com/photo-1473093295043-cdd812d0e601?w=900" alt="Plato de pasta" width="600">
-<br><br>
-## Ingredientes
 
+## Ingredientes
 - Doscientos gramos de pasta.
 
 - Una taza de champiñones laminados.
