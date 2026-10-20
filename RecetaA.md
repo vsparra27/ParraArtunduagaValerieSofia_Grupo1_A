@@ -10,6 +10,7 @@
 - Dos dientes de ajo.
 - Una cucharada de aceite de oliva.
 - Sal y pimienta al gusto.
+-1/2 (medio) sobre de caldo desmenuzado.
 <br><br><br>
 ## Instrucciones
 <br>
